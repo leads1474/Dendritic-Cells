@@ -28,6 +28,6 @@ Not only will there be a prize, you'll be helping our project (by spreading true
 ### Our Videos 
 Linked here you will find videos we have created! Enjoy!
 
-[Can Children Get Covid?](https://drive.google.com/file/d/1WkJ4y8kB5nqPHBlZkQN_9iOssvWD_XWj/view?resourcekey)
+[Can Children Get Covid?](https://drive.google.com/file/d/1ACKoq-A9_TWX2Bbf24ov1Maa1u6SF86E/view?usp=sharing)
 
 [Are The Ingrdients In The Vaccine Dangerous?](https://drive.google.com/file/d/1-0OgoVr1h_j2PHBxwhHzxey5C1L-iLHq/view?ts=62350fef)
