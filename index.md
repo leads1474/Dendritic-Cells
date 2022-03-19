@@ -1,6 +1,7 @@
-# Myth Busting
+# Myth Busters
 
-## Welcome to our myth busting website! Here you'll learn all about our contest!
+## Welcome to myth busting!
+Here you will learn all about our project!
 
 ### About us
 
